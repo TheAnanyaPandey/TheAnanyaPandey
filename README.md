@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @TheAnanyaPandey
+- 👋 Hi, I’m @MinSugaGenius
 - 👀 I’m interested in K-POP.
 - My favorite bands are Stray Kids and Blackpink.
 - I was introduced to K-POP by BTS.
